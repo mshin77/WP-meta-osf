@@ -1,0 +1,1 @@
+Shin, M., Bryant, D. P., Powell, S. R., Jung, P.-G., Ok, M. W., & Hou, F. (2021). A meta-analysis of single-case research on word-problem instruction for students with learning disabilities. *Remedial and Special Education, 42*(6), 398–411. https://doi.org/10.1177/0741932520964918
